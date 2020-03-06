@@ -1,0 +1,2 @@
+# thiet-ke-biet-thu-vuon-1-tang-hien-dai-tai-dak-lak
+Tiếp tục chuyên mục thiết kế biệt thự đẹp hôm nay, chúng tôi xin chia sẻ đến toàn thể quý vị và các bạn mẫu thiết kế biệt thự vườn 1 tầng hiện đại mái thái tại Đắk Lắk của gia đình anh Nam. Ngôi nhà được thiết kế và lên ý tưởng dựa theo các nhu cầu về công năng sử dụng, kiến trúc thẩm mỹ mặt tiền của gia đình chủ đầu tư, với mục đích đem đến một không gian sống tinh tế, hài hòa, đáp ứng đầy đủ các mong muốn cũng như sở thích của gia chủ đã đề ra trước đó.
